@@ -21,11 +21,11 @@ Every morning becomes bright when my sister makes scrambled eggs with adobo and 
 * [Ham](https://grocery.walmart.com/ip/Hillshire-Farm-Ultra-Thin-Sliced-Lunchmeat-Black-Forest-Ham-9-oz/26832120): $3.28
 
 # Directions
-1.
-1.
-1.
-1.
-1.
+1. Crack your eggs into a bowl and begin scrambling them once you add milk.
+1. Once you get a nice yellow goo, pour the eggs into a pan with butter sizzling on it.
+1. Cut the pan sobao open and spread butter on it.
+1. Lay it innards down onto another pan.
+1. Let the eggs cook until they solidify as you begin adding adobo into it (3 pinches).
 1.
 1.
 1.
