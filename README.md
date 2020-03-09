@@ -25,11 +25,11 @@ Every morning becomes bright when my sister makes scrambled eggs with adobo and 
 1. Once you get a nice yellow goo, pour the eggs into a pan with butter sizzling on it.
 1. Cut the pan sobao open and spread butter on it.
 1. Lay it innards down onto another pan.
-1. Let the eggs cook until they solidify as you begin adding adobo into it (3 pinches).
-1.
-1.
-1.
-1.
+1. Let the eggs cook until they ckumo together as you begin adding adobo into it (3 pinches).
+1. Upon egg completion, remove the now toasted pan sobao to the counter and the eggs onto the plate.
+1. Put ham and cheese on the pan sobao and put the eggs in it.
+1. With your now sandwich, cut the pan sobao in half and dig in.
+1. Get lost in the flavor.
 
 # Notes
 Cook time may vary if you have a particular favorite toast or if you use cheese, ham, or neither. The brand of ham, egg, and cheese also isn't set in stone, so price may vary too.
